@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[getbitznet.com](https://portal.getbitzapp.com/#/register?code=45NYAgPC)
+最新地址：[getbitznet.com](https://login.getbitzapp.com/#/register?code=45NYAgPC)
 
 ## 简介
 
