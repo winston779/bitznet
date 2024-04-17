@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[getbitznet.com](https://gobitznet.com/aff=45NYAgPC)
+最新地址：[getbitznet.com](https://tobitznet.com/aff=45NYAgPC)
 
 ## 简介
 
