@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[getbitznet.com](https://tobitznet.com/aff=45NYAgPC)
+最新地址：[getbitznet.com](https://j1.bnaffloop.com/#/register?code=45NYAgPC)
 
 ## 简介
 
