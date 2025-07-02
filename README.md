@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[bitzconnect.com](https://new.bnaffloop.com/#/register?code=n1fs4toV)
+最新地址：[bitzconnect.com](https://dir3.bnaffloop.com/#/register?code=n1fs4toV)
 
 ## 简介
 
